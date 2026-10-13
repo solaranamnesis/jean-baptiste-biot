@@ -6,5 +6,5 @@ Public Domain Works by Jean-Baptiste Biot (1774-1862).
 
 English - Plain Text  
 English - PDF  
-French - Plain Text  
+[French - Plain Text](relation-voyage-orne-meteore-aigle/full-text-french.md)  
 French - PDF  
