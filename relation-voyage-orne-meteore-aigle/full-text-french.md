@@ -18,171 +18,28 @@
 
 Le ministre de l'Intérieur m'ayant invité à me rendre dans le département de l'Orne pour prendre des renseignemens exacts sur le météore qui a paru aux environs de l'Aigle le 6 floréal dernier, je me suis empressé de remplir ses intentions, et je vais rendre compte à la classe des observations que j'ai recueillies. Je desire que l'importance du sujet fasse excuser la multiplicité des détails dans lesquels je vais entrer.
 
-Depuis que l'attention des savans s'est dirigée vers 
-l'examen des masses minérales que l'on dit être tombées 
+Depuis que l'attention des savans s'est dirigée vers l'examen des masses minérales que l'on dit être tombées de l'atmosphère, toutes les ressources de la critique et de l'expérience ont été employées pour constater cet étonnant phénomène et jeter quelque lumière sur sa cause. En même temps que l'analyse chimique déterminoit les élémens de ces masses, les séparoit des produits naturels jusqu'à présent connus, et découvroit dans leur identité parfaite la preuve, ou du moins la grande probabilité d'une origine commune, on recueilloit tous les récits qui pouvoient avoir quelques rapports au même fait ; on consultoit les écrits des anciens, dont l'autorité a été trop souvent suspectée, et que l'on reconnoît de plus en plus pour des témoins fidèles, à mesure que l'occasion se présente de vérifier leurs observations. Pour compléter ces recherches et achever de faire sentir toute leur importance, des hypothèses ingénieuses ont été imaginées, de manière à satisfaire, d'après les lois de la physique, aux phénomènes jus-qu'alors observés. Enfin les savans de toutes les classes, de tous les pays, ont réuni leurs efforts sur cette grande question, guidés, non par une rivalité jalouse, mais par le noble amour de la vérité.
 
-de Patmosphere, toutes les ressourccs de la critique et 
-de Pexpérience ont eté employees pour constater cet 
-t'-ionii.int phenomene et jeter quelque hi micro sur sa 
-cause. En méme temps que Panalyse chimique déter- 
-minoit les elemens de ces masses, les separoit des pro- 
-duits naturels jusqu'a present connus, et decouvroit 
-dans leur identity parfaite la preuve, ou du moins la 
-grande probability d'une origine commune, on reeueil- 
-loit tous les remits qui pouvoient avoir quelques rapports 
-au tneme fait; on consultoit les ecrits des anciens, 
-dont Pautorite a ete" trop souvent suspected, et que Von 
-reconnoit de plus en plus pour des temoins fideles, a 
-inesure que Poccasion se présente de verifier leurs ob- 
-servations. Pour completer ces recherches et achever 
-de faire sentir toute leur importance, des hypotheses 
-ingenieuses ont etc imaginees,de maniere a satisfaire, 
-d'apres les lois de la physique, aux phenoinenes jus- 
-qu'alors observes. En/in les savans de toutes les classes, 
-de tous les pays, ont reuni leurs efforts sur cette grande 
-question, guides, non par une rivalite jalouSe, mais 
-par le noble amour de la v6rii6. 
+Sans doute ce concours unanime sera remarqué dans l'histoire des sciences. Il offre à la fois le résultat et la preuve de leurs progrès. C'est un grand pas de fait dans l'étude de la nature, que de savoir examiner un phénomène dont on ne voit encore aucune explication complète, et cette sorte de courage n'appartient qu'aux hommes les plus éclairés. Nous devons donc remercier notre confrère Pictet, qui nous a donné le premier cet exemple dans la question actuelle, en nous communiquant les recherches des chimistes anglais ; recherches qu'une décision précipitée auroit pu faire traiter de chimériques, mais qui furent discutées dans le sein de la classe avec cet empressement réservé, par lequel on évite également d'écarter les vérités nouvelles, et d'accueillir les erreurs. Qu'importent en effet les préjugés de ceux à qui tout manque pour se former une opinion ? Toujours, dans les questions douteuses, l'ignorant croit, le demi-savant décide, l'homme instruit examine : il n'a pas la témérité de poser des bornes à la puissance de la nature. Suivons donc avec zèle, et sans que rien nous arrête, le phénomène qui nous occupe maintenant ; et s'il arrive enfin, comme je l'espère, que nous réussissions à le mettre hors de doute, n'oublions pas que c'est l'envie de tout expliquer qui l'a fait rejeter si long-temps.
 
-Sans doute ce concours unanime sera remarqué dans 
-Fbistoire des sciences. Il ofFre a la fois le res u hat et la 
-preuve de leurs progres. C'est un grand pas de fait dans 
-Petude de la nature, que de savoir examiner un phe* 
-nomene dont on ne voit encore aucune explication com- 
-plete, et eette sorte de courage n'appartient qu'aux 
-hommes les plus eclairés. Nous devons done remercier 
+De toutes les probabilités recueillies jusqu'à présent sur la chute des masses météoriques, la plus forte résulte de l'accord qui existe entre l'identité de leur composition et l'identité d'origine que les témoignages leur attribuent exclusivement. Cet accord, déja vérifié par un grand nombre d'observations, donne à la probabilité dont il s'agit une valeur très-approchante de la certitude, et qui n'est nullement infirmée par les objections que l'on a tirées du peu de lumières des témoins ; car, en raison même de ce peu de lumières, les témoignages devroient, si le fait étoit faux, s'appliquer à des substances diverses, à des circonstances dissemblables ; et dans un sujet de cette nature, ou l'intérêt particulier n'entre pour rien, la chance du concours des témoins est unique, tandis que celle de leur divergence est infiniment multipliée.
 
+Cependant il étoit fort à desirer que le phénomène fût une fois constaté d'une manière irrécusable, et que toutes ses particularités fussent recueillies avec fidélité, autant pour achever d'établir la certitude morale de son existence, que pour connoître exactement les circonstances qui le caractérisent, et qui sont également nécessaires pour remonter, s'il est possible, jusqu'à sa cause, ou du moins pour empêcher que l'on ne s'égare en la cherchant.
 
-notre confrere Pictet, qui nous a doling le premier cet 
+Convaincu de cette vérité, j'ai senti que l'exactitude et la fidélité la plus scrupuleuse pouvoient seules rendre utile aux sciences la mission dont j'étois chargé. Je me suis considéré comme un témoin étranger à tout système ; et, pour ne rien hasarder de ce qui pourroit ôter quelque confiance aux faits que je vais rapporter, je me bornerai dans ce mémoire à les exposer tels que je les ai recueillis, et en développant les conséquences immédiates qui résultent de leurs rapports, je m'abstiendrai même d'examiner en quoi elles se rapprochent ou s'écartent des hypothèses que l'on a imaginées.
 
-exemple dans la question actuelle . en nous communi- 
+Avant de commencer ma recherche, je crus nécessaire de classer méthodiquement les faits sur lesquels je devois principalement diriger mes observations ; en conséquence je les réunis dans le tableau suivant :
 
-quant les recherches des chimistes anglais ; reclierckes 
+Argumens..|Physiques, tirés..|De l'existence des pierres météoriques entre les mains des habitans du pays.  
+Argumens..|Physiques, tirés..|Des traces ou des débris qui auroient été laissés ou occasionnés par le météore.  
+Argumens..|Physiques, tirés..|Des circonstances minéralogiques et géologiques du pays.  
+Argumens..|Moraux, tirés..|Du témoignage des personnes qui ont vu et entendu le météore.  
+Argumens..|Moraux, tirés..|Du témoignage dés personnes qui ont entendu le météore sans l'avoir vu.  
+Argumens..|Moraux, tirés..|Du témoignage dés personnes qui, étant sur les lieux, ont cherché et recueilli des renseignemens sur l'existence du météore et sur ses effets.
 
-qu'une decision pre* ci pi tee auroit pu faire traiter de clii- 
+Avant de partir, je recueillis sur ces diverses questions tous les renseignemens que je pus me procurer. Je priai le citoyen Haüy de vouloir bien m'éclairer de ses lumières sur ce qui concernoit la minéralogie du pays que j'allois parcourir. Le citoyen Coquebert Montbret, correspondant de la classe, me fournit les connoissances qui m'étoient nécessaires sur la géographie physique du même pays. Enfin le citoyen Fourcroy voulut bien me donner une copie des lettres qu'il avoit reçues de l'Aigle relativement à l'apparition du météore.
 
-meriques, mais qui furent discutees dans le sein de la 
-
-classe avec cet emprcssement reserve, par lequel on evite 
-
-egalement d'ecarter les verites nouvelles, et d'accueil- 
-
-lir les erreurs. Qu'importent en effet les prejuges de 
-
-ceux a qui tout manque pour se former une opinion ? 
-
-Toujours, dans les questions douteuses, Pignorant croit, 
-
-le demi- savant decide, Phomme instruit examine : il 
-
-n'n pas la tV-merite de poser des bornes a la puissance 
-
-de la nature. Suivons done avec zele, et sans que rien 
-
-nous a rrr i c, le phenomene qui nous occupe maintenant ; 
-
-et s'il arrive enfin . comme je Pespere, que nous r«5us- 
-
-sissions a le mettre hors de doute, n'oublions pas que 
-
-e'est Penvie de tout expliquer qui Pa fait rejeter si 
-
-long- temps. 
-
-De toutes les probabilites recueillies jusqu'a present 
-sur la chute des masses méteoriques, la plus forte ré* 
-suite de Paccord qui existe entre Pidentite de leur com- 
-position et Pidentite d'origine que les temoignages leur 
-attribuent exclusive men t. Cet accord, deja verilie par 
-tin grand nombre d'observations, donne a la probability 
-dont il s'agit une valeur tres-appro cban te ' de la certi- 
-tude, et qui n'est nullement infirmee par les objections 
-que Pon a tirees du peu de lumieres des temoinsj car, 
-en raison meme de ce peu de lumieres, les temoignages 
-
-
-
-devroient, si le fait Stoit faux, s'appliquer a des subs- 
-tances d i verses, a des circonstances disseinblables j et 
-dans un sujet de cette nature, ou l'intcSrdt particulicr 
-n'entre pour rien, la chance du concours des temoins 
-est unique, tandis que celle de leur divergence est infi- 
-niment multiplied. 
-
-Cepcndant il «"■ to i t fort a desirer que le phenomene 
-fut uue fois constaté d'une maniere irrecusable, et que 
-toutes ses particularites fussent recueillies avec fid*' 1 it*?, 
-autant pour achever détablir la certitude morale de son 
-existence, que pour connohre exactement les circons- 
-tances qui le caracterisent, et qui sont 3galement n*5ces- 
-saires pour remonter, s'il est possible, jusqu'a sa cause, 
-ou du moins pour empdcher que l'on ne s'egare en la 
-cherchant. 
-
-Convaincu de cette verité, j'ai senti que l'exactitude 
-et la fidelity la plus scrupuleuse pouvoient seules rendre 
-utile aux sciences la mission dont j'etois charged Je me 
-suis considere comme un temoin etranger a tout sys- 
-teme 5 et, pour ne rien hasardcr de ce qui pourroit oter 
-quelque confiance aux fails que je vais rapporter, je me 
-bornerai dans ce memoire a les exposer tels que je les 
-ai recueillis, et en deVeloppant les consequences imme- 
-diates qui resultent de leurs rapports, je m'abstiendrai 
-m&ine d'examiner en quoi elles se rapprochent ou s'ecar- 
-tent des hypotheses que l'on a iinaginees. 
-
-Avant de commencer ma recherche, je crus ntices- 
-saire de classer methodiquement les faits sur lesquels 
-
-je devois principalement dinger mes observations; en 
-consequence je les reunis dans le tableau suivant : 
-
-
-De éexistence des pierrcs metco- 
-riques entre le* mains den faabi- 
-tiuis du pays. traces ou des debris qui auroient 
-laisses ou occasionnds par lo 
-meteore. 
-
-L)e& tircon stances mineralogiqucs of 
-geulogiques du pays-. 
-
-
-Monitn, tire's 
-
-
-Du temoignage des person nes qui 
-
-ant vii ct entendu !■ -raeteore. 
-[Du tcmoignage des persannes qui 
-
-out entendu le meteore uni l'aroir 
-
-vu. 
-iDu tcmoignage des person nes qui t 
-
-j t;i nt Mir les lieux, out c berche. 
-
-et recueilli des renseigncmens stir 
-
-l'cxistence du meteore ct sur sea 
-
-cfleU. 
-
-
-Avant de partir, je recueillis sur ces diyerses ques- 
-tions tous les renseignemens que je pus me procurer. 
-Je fuiai le citoyen Hatiy de vouloir bien m'e'clairer de 
-ses lumieres sur ce qui concernoit la minéralogie du 
-pays que j'allois parcourir. Le citoyen Coquebert Mont- 
-bret, correspondant de la classe, me fournit les connois- 
-sances qui m'étoient nécessaires sur la geographic phy- 
-sique du méme pays. En fin le citoyen Fourcroy voulut 
-bien me donner une copie des lettres qu'il avoit recues 
-de PAigle relatirement a l'apparitiondu meteore. 
-
-Je partis de Paris le 7 messidor r emportant avec moi 
-
-
+Je partis de Paris le 7 messidor, emportant avec moi 
 
 tine boussole, une carte de Cassini, ct iin echantillon 
 cle la pierre meieorique de Barbotan, qui avoit éte remis 
