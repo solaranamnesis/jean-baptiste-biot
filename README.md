@@ -7,4 +7,4 @@ Public Domain Works by Jean-Baptiste Biot (1774-1862).
 English - Plain Text  
 English - PDF  
 [French - Plain Text](relation-voyage-orne-meteore-aigle/full-text-french.md) | [French - Plain Text](relation-voyage-orne-meteore-aigle/full-text-french-gfm.md)  
-French - PDF  
+[French - PDF](https://cdn.solaranamnesis.com/JBBiot/orne-aigle-1803/biot-orne-aigle-1803-french.pdf) | [Atkinson](https://cdn.solaranamnesis.com/JBBiot/orne-aigle-1803/biot-orne-aigle-1803-french-atkinson.pdf) | [Biolinum](https://cdn.solaranamnesis.com/JBBiot/orne-aigle-1803/biot-orne-aigle-1803-french-biolinum.pdf) | [Kerkis](https://cdn.solaranamnesis.com/JBBiot/orne-aigle-1803/biot-orne-aigle-1803-french-kerkis.pdf)  
