@@ -2,5 +2,5 @@
 
 English - Plain Text  
 English - PDF  
-[French - Plain Text](full-text-french.md)  
+[French - Plain Text](full-text-french.md) | [French - (GFM) Plain Text](full-text-french-gfm.md)  
 French - PDF  
