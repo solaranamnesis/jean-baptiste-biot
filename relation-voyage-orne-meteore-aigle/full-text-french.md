@@ -267,3 +267,5 @@ Ces résultats sont tout à fait d'accord avec ceux que le citoyen Vauquelin ava
 Au reste, quelle que soit l'origine de ces pierres, on ne doit pas s'étonner de trouver quelques différences dans les rapports des substances qui les composent, puisqu'elles sont unies par une simple agrégation, et non par une combinaison intime.
 
 Je me suis borné dans cette relation à un simple exposé des faits ; j'ai tâché de les voir comme tout autre les aurait vus, et j'ai mis tous mes soins à les présenter avec exactitude. Je laisse à la sagacité des physiciens les nombreuses conséquences que l'on en peut déduire, et je m'estimerai heureux s'ils trouvent que j'ai réussi à mettre hors de doute un des plus étonnants phénomènes que les hommes aient jamais observés.
+
+[Fig.](https://cdn.solaranamnesis.com/JBBiot/orne-aigle-1803/biot-lorne-aigle.png)
